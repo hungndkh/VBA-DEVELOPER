@@ -1,4 +1,4 @@
-Cảm ơn Sakim.con đã chia sẻ miễn phí!
+Cảm ơn Sackim.com đã chia sẻ miễn phí!
 Bạn có thể liên hệ Zalo 0907 831 345 để nhận password xem project!
 
 -------------------Video hướng dẫn tool-------------------
